@@ -1,3 +1,5 @@
+![333](https://github.com/user-attachments/assets/f42e6c2a-f4a9-49f4-ac6d-61103663344f)
+
 ## Алексей Александрович
 8(921)921-9219, alex@rambler.ru
 # Бизнес-аналитик
